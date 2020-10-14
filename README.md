@@ -36,6 +36,10 @@ Tennis tips, sayings, prompts, cues, and reminders to review before hitting[†]
 
 ## Footwork
 
+- Move your feet. All the time.
+- Lots of little steps.
+- Stay on your toes. Avoid flat-footedness.
+
 ## Serve
 
 ### First serve
